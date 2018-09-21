@@ -1,1 +1,0 @@
-# DQ_Exploring_Gun_Deaths_in_the_US
